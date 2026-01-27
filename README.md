@@ -9,7 +9,7 @@ IT-рекрутер с 5+ годами опыта в ИТ и 11+ лет в по�
 - Телефон: +7 (906) 707-34-24
 - Telegram: [@GrigoryKopylov](https://t.me/GrigoryKopylov)
 - Email: grigorykopylov@gmail.com
-- Город: Москва
+- Город: Москва, Россия
 
 ## Резюме
 
