@@ -10,7 +10,3 @@ IT-рекрутер с 5 годами опыта в ИТ и 11+ лет в под
 - Telegram: [@GrigoryKopylov](https://t.me/GrigoryKopylov)
 - Email: grigorykopylov@gmail.com
 - Город: Москва, Россия
-
-## Резюме
-
-- [Резюме](https://kopylovg.ru/) можно найти тут
